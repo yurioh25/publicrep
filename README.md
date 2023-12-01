@@ -1,1 +1,1 @@
-# deletar em 1 dia
+# se leu mamou
